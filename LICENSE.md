@@ -1,4 +1,4 @@
-# 
+# updated nft sniper bot addons is the best nft sniper bot addons with metadata-parsing and whitelist-bypass. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
